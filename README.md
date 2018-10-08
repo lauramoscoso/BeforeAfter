@@ -1,2 +1,0 @@
-# BeforeAfter
-My photos
